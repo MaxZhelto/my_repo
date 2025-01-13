@@ -1,0 +1,1 @@
+All rights reserved. Please pay me 20 baks for good future!
